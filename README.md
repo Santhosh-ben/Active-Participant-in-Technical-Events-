@@ -11,3 +11,4 @@
 
 ![Image](https://github.com/user-attachments/assets/4399cdf0-74f4-486f-8757-bc384815ee08)
 
+[Watt's Up 2.0 - SANTHOSH A .pdf](https://github.com/user-attachments/files/20261384/Watt.s.Up.2.0.-.SANTHOSH.A.pdf)
